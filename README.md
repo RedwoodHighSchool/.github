@@ -4,7 +4,7 @@
 
 ## About Redwood High School
 
-Redwood High School, part of the Tamalpais Union High School District, is a prestigious institution known for its excellence in academics.
+Redwood High School, located in Larkspur, California, is one of five public high schools in the Tamalpais Union High School District.
 
 ### Courses Taught
 
